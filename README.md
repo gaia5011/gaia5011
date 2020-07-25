@@ -29,4 +29,4 @@ I'm a quick learner, always curious and looking to expand my skillset! As a side
 ## 😄 When I'm not on here, you can find me:
 - Geeking out about random things on the internet :globe_with_meridians:
 - Discovering new music or reading webcomics :book:
-- Making friends with ever dog I see :paw_prints:
+- Making friends with every dog I see :paw_prints:
